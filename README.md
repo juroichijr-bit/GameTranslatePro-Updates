@@ -1,0 +1,1 @@
+# GameTranslatePro-Updates
